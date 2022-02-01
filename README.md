@@ -24,6 +24,8 @@ Mais en temps normal quand je fais quelque chose c'est du dev web, et mobile.
 *je te laisse aller trouver mon mail sur mon site je vais pas tout faire à ta place*
 ![alt blabla](https://media.giphy.com/media/4PT6v3PQKG6Yg/giphy.gif)
 
+(le site est sur la partie gauche au cas où)
+
 
 # Bonne lecture 
 ![alt blablah](https://media.giphy.com/media/y0yGfn4JsQCGY/giphy.gif)
