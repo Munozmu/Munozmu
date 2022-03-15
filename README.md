@@ -21,10 +21,8 @@ Site web [GendCorps](https://www.instagram.com/gendcorps/) (du lourd qui arrive 
 /!\ JE SUIS TOUJOURS OUVERT AUX PROJETS PRO /!\
 
 ## Tu peux me contacter ici 📫 :
-*je te laisse aller trouver mon mail sur mon site je vais pas tout faire à ta place*
-![alt blabla](https://media.giphy.com/media/4PT6v3PQKG6Yg/giphy.gif)
 
-(le site est sur la partie gauche au cas où)
+contact@gabinmunoz.fr
 
 
 # Bonne lecture 
