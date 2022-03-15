@@ -16,9 +16,9 @@ Je sais pas comment t'es arrivé là mais c'est [très sus](https://www.youtube.
 
 ## Taff actuel 🔭 :
 
-[RAS](https://www.larousse.fr/dictionnaires/francais/R_A_S_/66553)
+Site web [GendCorps](https://www.instagram.com/gendcorps/) (du lourd qui arrive pour la communauté)
 
-Mais en temps normal quand je fais quelque chose c'est du dev web, et mobile. 
+/!\ JE SUIS TOUJOURS OUVERT AUX PROJETS PRO /!\
 
 ## Tu peux me contacter ici 📫 :
 *je te laisse aller trouver mon mail sur mon site je vais pas tout faire à ta place*
