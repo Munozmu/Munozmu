@@ -16,7 +16,7 @@ Je sais pas comment t'es arrivé là mais c'est [très sus](https://www.youtube.
 
 ## Taff actuel 🔭 :
 
-Site web [GendCorps](https://www.instagram.com/gendcorps/) (du lourd qui arrive pour la communauté)
+Site web [GendCorps](https://www.instagram.com/gendcorps/) 
 
 /!\ JE SUIS TOUJOURS OUVERT AUX PROJETS PRO /!\
 
