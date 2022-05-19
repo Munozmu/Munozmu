@@ -3,7 +3,9 @@
 ![alt un giffe](https://media.giphy.com/media/uHox9Jm5TyTPa/giphy.gif "Title")
 
 #### Qu'est-ce que vous faites ici ?
-*(C'est de l'espionage industriel là
+*(C'est de l'espionage industriel là)*
+
+peu importe, bonne visite
 
 
 ## Taff actuel 🔭 :
